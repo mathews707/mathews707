@@ -1,4 +1,4 @@
-# 👋 Hey there! I'm Mathews707
+# 👋 Hey there! I'm Mathews
 
 Welcome to my little corner of GitHub! 🚀 
 
